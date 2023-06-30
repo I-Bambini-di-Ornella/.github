@@ -1,57 +1,52 @@
-# About ous
+# About Us
 
 ## Our Mission
-The Association is non-profit and pursues civic, solidarity and social utility purposes.
-We support the integral promotion of the person in Senegal, especially children and young people.
-Support for the social, cultural, and educational development of children and young people in contexts of socio-economic and environmental difficulty.
-Support for promoting social and work integration of young people and people with work difficulties.
-We are promoting a culture and a society of welcome, dialogue, peace, and solidarity.
-The promotion of volunteering and cooperation for development and international solidarity
 
-In particular, the Association aims to:
-Sustain the activities managed by our sister Association LES ENFANTS D'ORNELLA, led by Severino Proserpio (well-known public figure in Como) in Senegal in YENE - KELLE, hosted at our community centre "CASA DE SOLIDARITE' Giovanni Quadroni".
-Support the activities of the "Denise Latini" Nursery School in the rural village of DAGA DIALAW.
-Present projects and requests for contribution to the Institutions, Associations both nationally and internationally, aimed at the economic and financial support of the various initiatives the Association facilitates to achieve its goals better.
-Promote exhibitions and events and participate in initiatives aimed at spreading knowledge and economic and financial support of the Association through multimedia tools.
-Organize the collection of adhesions and the presence of staff who participate in periods of active volunteering at the activities promoted/supported by the Association in Senegal.
+At our core, we are a non-profit association driven by a deep commitment to civic duty, solidarity, and social utility. Our focus is on the holistic well-being and development of individuals in Senegal, particularly children and young people. We are dedicated to supporting their social, cultural, and educational growth, even in the face of challenging socio-economic and environmental circumstances. Additionally, we strive to promote the social and vocational integration of young individuals facing difficulties in finding work. Our ultimate goal is to foster a society founded on principles of inclusivity, dialogue, peace, and solidarity. We actively encourage volunteering and cooperation for development, both locally and internationally.
 
-## Charity description
-The Association operates mainly in Senegal in Yene – Kelle sur Mer through its "Association d'Education Populaire" called Les Enfants d'Ornella, which develops and manages its activities through a Bureau that provides for the participation not only of some Italian volunteers present in Senegal but also of representatives of the associative realities and local institutional realities.
+## Our Initiatives
 
-## The existing activities:
+The Association's primary aim is to sustain the endeavours undertaken by our sister organization, Les Enfants d'Ornella, led by the esteemed Severino Proserpio, a well-known public figure in Como. Together, we work in Yene-Kelle, Senegal, operating from our community centre, "Casa de Solidarite' Giovanni Quadroni." Moreover, we provide support to the "Denise Latini" Nursery School located in the rural village of Daga Dialaw. To accomplish our goals more effectively, we present projects and funding requests to national and international institutions and associations. We actively engage in exhibitions, events, and multimedia initiatives to disseminate knowledge about our work and secure the necessary economic and financial backing. Additionally, we organize the collection of donations and send staff members to actively volunteer at the initiatives we promote or support in Senegal.
 
-### CASA DE SOLIDARITE' "GIOVANNI QUADRONI":  
-In our structure of 2000 square meters for over 17 years, we have been educating, assisting, caring and training children in the villages of the village of Yene.  
-Seven employees in the Giovanni Quadroni community centre are responsible for creating literacy and school preparation courses for beach children ("enfants de la plage") who do not attend school. These children, intercepted by our educators on the beaches, are included in preschool courses in our centre. At the same time, we take care of the procedure to be able to register them and make them have all the necessary documents to enrol them in school. 
-The centre's work is also mainly aimed at the Talibè children of the nearby villages. In most cases, these children are abandoned at a very young age by their families and entrusted to self-styled Koranic "teachers". They often do not let them attend official school courses and exploit them by forcing them to beg, exposing them to risks of all kinds.
-Over time, the Giovanni Quadroni Center has become a point of reference for these children (about 300 throughout the area), offering them food assistance, facilitating body hygiene, providing primary health care, and developing literacy and recreational sports activities.
-The Giovanni Quadroni Center is also a space open to all the village's children with its offer of activities dedicated to music, dance, theatre, and the development of creativity.
+# Description of Our Work
 
-### TRAINING CENTER "BRUNELLO BERTONI" AND THE PROFESSIONAL SCHOOL OF TAILORING 
-The "Brunello Bertoni Vocational Training Centre" was built next to our centre by our partner Association, "Formazione Solidale", to expand the activities of Les Enfants d'Ornella in the apprenticeship field. It is a structure of about 400 square meters that, for over four years, has housed the "Professional School of Tailoring" aimed toward young women in the area. Through a three-year educational path, the school allows girls to learn technical and professional skills in the sector and, at the end of the third year, obtain a diploma recognized by the Senegalese Ministry of Vocational Training and Crafts. The school immediately enjoyed the considerable success of adhesion involving over 80 girls in the training course. 
+## Charity Description
 
-### ADUNA LAB
-In close collaboration with the tailoring school, Aduna Lab was born, a cooperative that aims to insert the best students of the tailoring school into work. Currently, the collective employs five girls.
-The birth of the project has made it possible to carry out structural interventions within the B. Bertoni Training Center preparatory to a tailoring production laboratory, equipping it with professional machinery and tools aimed at marketing the products made. Aduna Lab wants to become a tool for job placement in other sectors, such as tourism and accommodation.
+Our Association primarily operates in Senegal, specifically in Yene-Kelle sur Mer, through our "Association d'Education Populaire" named Les Enfants d'Ornella. This organization develops and manages activities with the collaboration of Italian volunteers in Senegal, as well as representatives from local associations and institutions.
 
-### NURSERY SCHOOL "DENISE LATINI" Village of Daga Dialaw
-The nursery school welcomes children aged between 3 and 6 years. It is located in the village of Daga Dialaw and was built thanks to the testamentary legacy of Denise Latini of Certaldo (Firenze). The structure takes care of the didactic and pedagogical approach and is entrusted to a worker cooperative composed of local staff who employ three qualified educators.
+## Our Current Activities:
 
-### THE ALBINOS OF NIAYES KIAYES
-Niayes Kiayes is in the steppe, about 8 kilometres of dusty track from Yene, and has been the subject of numerous support interventions in recent years. The village is known for the constant presence of people suffering from albinism, whose maximum age reaches an average of 20 years — a sign of missing assistance and care that the disease requires. Thanks to a group of volunteer nurses from Como, a strong network was established for helping children suffering from albinism. Since 2019, with the collaboration of ANAS (National Association of Albinism Senegal) and a nurse from the Yene dispensary, a project has been launched to guarantee sunscreen, medical examinations, and the supply of glasses to the nine albino schoolchildren. 
+### CASA DE SOLIDARITE' "GIOVANNI QUADRONI":
+For over 17 years, our 2000-square-meter facility has served as an educational, supportive, and training centre for children in the surrounding villages of Yene. Within the Giovanni Quadroni community centre, a team of seven dedicated employees provides literacy and school preparation courses for "enfants de la plage" (beach children) who do not have access to formal education. These children, identified by our educators on the beaches, are enrolled in preschool programs at our centre. Simultaneously, we facilitate their registration and ensure they possess all the necessary documents to enrol in school. The centre primarily focuses on assisting Tabliéè children from nearby villages. These children are often abandoned at a tender age by their families and entrusted to self-proclaimed Koranic "teachers." Frequently denied access to formal schooling, they are forced into begging and face various risks. Over time, the Giovanni Quadroni Center has become a trusted haven for these children, offering them food assistance, promoting personal hygiene, providing primary healthcare, and engaging them in literacy, recreational sports, and creative activities. Furthermore, the centre provides open access to all children in the village, providing activities related to music, dance, theatre, and the development of creativity.
 
-### VOLUNTEERS AND INITIATIVE TRAVEL WITH US
-We base on the active collaboration that several young people provide, even for a limited period, in support of the various initiatives in Senegal. In close connection with the Association Le Enfants d'Ornella and hosted at the Hostel "BEGUE POKAI", we periodically organize for members experiential and voluntary trips that allow experiencing the daily life of our small but precious Association.
+### TRAINING CENTER "BRUNELLO BERTONI" AND THE PROFESSIONAL SCHOOL OF TAILORING:
+Adjacent to our centre, the "Brunello Bertoni Vocational Training Centre" was established by our partner association, "Formazione Solidale," to expand the activities of Les Enfants d'Ornella in the field of apprenticeships. This 400-square-meter facility has been instrumental in operating the "Professional School of Tailoring" for young women in the area for the past four years. Through a comprehensive three-year educational program, the school equips girls with technical and professional skills in tailoring. Upon completion of the program, they receive a diploma recognized by the Senegalese Ministry of Vocational Training and Crafts. The school has experienced significant success, attracting over 80 girls to enrol in the training course.
 
-## The Association in numbers. 
-From 17 years at the service of children in Senegal 
-3,000 square meters of facilities dedicated to schooling and training 
-750 enfants de la plage sent to school 
-Over 1,000 Talib children are monitored and helped
-3,000 primary school pupils involved in support programmes
-250 contributions paid for school expenses 
-7,000 dressings carried out at our clinic
-50 hospital admissions sustained
-Over 100,000 meals dispensed 
-Over 5,000 garments distributed
-8,000 hours dedicated to the vocational training of young people 
+### ADUNA LAB:
+Aduna Lab was born in close collaboration with the tailoring school. It is a cooperative that aims to provide employment opportunities for the most talented students from the tailoring program. Currently, the collective employs five girls. This project has led to structural improvements within the B. Bertoni Training Center, preparing it for tailoring production. The centre now possesses professional machinery and tools necessary for marketing the products made. Aduna Lab aspires to serve as a platform for job placement in other sectors, such as tourism and hospitality.
+
+### NURSERY SCHOOL "DENISE LATINI" Village of Daga Dialaw:
+Located in the village of Daga Dialaw, the nursery school welcomes children between the ages of 3 and 6. Thanks to the generous bequest of Denise Latini from Certaldo (Firenze), the school is entrusted to a cooperative of local staff who employ three qualified educators. The cooperative focuses on providing a nurturing and pedagogical environment for the children.
+
+### THE ALBINOS OF NIAYES KIAYES:
+Niayes Kiayes, situated in the steppe, approximately 8 kilometres from Yene, has received numerous support interventions in recent years. The village is known for the prevalence of individuals with albinism, who often lack the assistance and care necessary to address the challenges posed by their condition. In collaboration with volunteer nurses from Como, we have established a robust network to aid children with albinism. Since 2019, we have been working with the ANAS (National Association of Albinism Senegal) and a nurse from the Yene dispensary to provide sunscreen, medical examinations, and glasses to nine albino schoolchildren.
+
+### VOLUNTEERS AND INITIATIVE TRAVEL WITH US:
+We greatly value the active collaboration of numerous young individuals who contribute, even for short periods, to support our initiatives in Senegal. We periodically organise experiential and voluntary trips for our members in partnership with the Association Les Enfants d'Ornella and through our affiliation with the "Begue Pokai" Hostel. These trips provide an opportunity to immerse oneself in the daily life of our small yet impactful association.
+
+### The Impact of Our Association
+
+Over our 17-year journey, we have achieved significant milestones in Senegal. Our accomplishments include the following:
+
+- Providing 3,000 square meters of facilities dedicated to education and training
+- Enabling 750 "enfants de la plage" to enrol in school
+- Monitoring and supporting over 1,000 Tablié children
+- Engaging 3,000 primary school pupils in support programs
+- Contributing to 250 school-related expenses
+- Conducting 7,000 medical dressings at our clinic
+- Facilitating 50 hospital admissions
+- Dispensing over 100,000 meals
+- Distributing 5,000 garments
+- Dedicating 8,000 hours to vocational training for young individuals
+
+Together, we have made a tangible and lasting difference in the lives of those we serve, and we remain committed to furthering our impact in the future.
